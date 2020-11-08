@@ -1,0 +1,51 @@
+---
+layout: post
+title:  "A Movie Proposal #1: A Moveable Feast"
+date:   2020-11-06 16:07:29 -0500
+categories: Movies
+---
+This will be apart of ongoing series of this blog. In it I will propose recasting a well-known movie or an original screen play with actors, a director, and a rough summary of the plot .
+A game I have played with myself since college is taking movies and thinking what they would look like if certain actors or actresses had changed. Like Social Network with Michael Cera instead of Jesse Eisenberg. Annihilation with Carrie Coon instead of Natalie Portman. Could they pull it off? (certainly not for Cera, definitely for Coon.) It is a wonderful exercise for crystalizing what an actor or actress brings to role and what the role should be (and what the role means to movie). There are few things as satisfying as seeing an actor or actress casted perfectly. It represents the manifestation of a vision. The crystallization and surfacing of the subconscious  
+
+As I played the game more it began to evolve. No longer was I imagining other folks movies but I began to think of original movies. It began at first as vehicles to showcase actors or actresses I had always liked. For instance, there is a Tom Cruise movie out there where he is an over-the-hill professional (I am thinking play-right but that could be too on-the-nose) wrestling with his mental deterioration. 
+
+This evolved into my now favorite version of the game. Casting books I am reading. It provides just the right amount of abstraction. It is not influenced by the performance of another actor but has a clear feeling and direction.  It is this form of the game that will be written here. 
+
+A Moveable Feast was published in 1964 by Ernest Hemingway. It functions as a diary documenting his early life in the 1920s as a struggling writer in Paris. Regardless of one's personal feelings towards Hemingway, it is hard not to be astounded by the company he kept. Gertrude Stein, Ezra Klein, James Joyce. A conversation about destiny and purpose is beyond the scope of this piece but this sort of coincidence does give one pause. All the interactions are fascinating in their own right, but it is Hemingway's time with F. Scott Fitzgerald that will serve as the inspiration for today's discussion. 
+
+______________________________________________________________________________
+
+The Facts
+Hemingway: Russel Crowe
+Fitzgerald: James Franco 
+Zelda Fitzgerald: Anne Hathaway
+Director: Damien Chazelle 
+Length: 101 minutes 
+Plot Summary: Hemmingway and Fitzgerald take a trip from Paris to Spain. Along the way they discuss drinking, writing, life, and love. 
+﻿
+His talent was as natural as the pattern that was made by the dust on a butterfly's wings. At one time he understood it no more than the butterfly did and he did not know when it was brushed or marred. Later he became conscious of his damaged wings and of their construction and he learned to think and could not fly any more because the love of flight was gone and he could only remember when it had been effortless. 
+
+Ernest Hemingway talking about Scott Fitzgerald
+It was this quote that serves as the inspiration of the proposed movie. As I moved through A Moveable Feast I was struck by Hemingway's observations. Like his writing, it does not strain to be profound. It breathes and simply is. His respect and admiration for Fitzgerald is evident throughout the entire chapter and is made more complicated (and endearing) because of Fitzgerald's flaws. I am sucker for the cost of genius and Fitzgerald lives that theme out beautifully. He can be charming, petty, brilliant, petulant, thoughtful, and rash all at once. Hemingway is a mountain and Fitzgerald water. It was this recognition of "game recognize game" that serves as the foundation of the relationship and the proposed movie.
+
+With this in mind, the casting would have to reflect these opposing forces. Franco (suggested by my girlfriend) as Fitzgerald and I cannot think of  stronger alternatives. Franco has battled against the idea he is pretentious for the latter half of his career. And he certainly has done his fair share to counter the claims. Pineapple Express, his roast, etc. Too much earnestness is exhausting (just ask Chance the Rapper). Don't be fooled though. This is a man who wrote a book of poetry. Poetry!! A man who directed Interior. Leather Bar. a film so whose premise is so excessively post modern it is difficult to even summarize succinctly. He directed and starred in a movie  all about the a delusional artist. Franco can play the game but deep down we know the truth. 
+
+But it IS important that he did the roast. And the silly movies. He adherence to the mainstream, while also making these ambitious (self-indulgent???) projects are crucial. It is this that makes Franco such an appealing Fitzgerald. He imbibed and danced and carried on among the rich and powerful.  It was his desire to be an Artist AND be known as an Artist that Franco could represent on screen. 
+
+Moving onto Crowe this would be a workmanlike performance. This is a Franco (and Fitzgerald vehicle). I am a fan of Crowe and he still has the chops to carry a project (I have not watched but have heard his performance in The Loudest Voice is strong). Crowe has been out of the mainstream discussion for a few years now. Playing second fiddle in a movie has provided a healthy bump to many careers. The media cycle often looking: 
+
+Actor who carries the film receiving awards buzz
+The second lead receiving significant (but not as significant) adulation for his or her performance 
+A few think pieces that say actually Crowe's (or whoever) understated work actually make the film "For without it Franco's performance would be like a chair with one leg ..."
+If all goes well then perhaps a few "career appreciation" pieces. Maybe a Men's Journal or New Yorker profile. 
+Hemingway's life reads like an audition for the "World's Most Interesting" (bull fighter, soldier, fisherman, hunter, philanderer). Crowe's captures the intelligent in a more physical way that would be needed. There was a time in the mid 2000s where Crowe went around getting drunk and getting into fights. Crowe would appreciate Hemingway's ruggedness and character flaws. Additionally, the dichotomy in the screen presence between Franco and Crowe would be pleasant. Franco, with his elegant features and lithe frame would add to the aura of someone who is not healthy. And Crowe in all his paunchiness would only emphasize this. 
+
+The trickiest part of the film comes to Zelda Fitzgerald and how much screen time would be necessary. It really is the crux of the film. Crowe and Franco exchanging monologues would be difficult to make unwatchable. The Zelda Fitzgerald character is the memento-in-the-coke portion of the story for a variety of reasons. First off, the movie is going to male heavy and two white men waxing poetic life may not play well. In addition, the Zelda and Scott relationship is a reservoir of complexity.  Two deeply unhealthy people who cannot resit one another. The relatability of the story line also makes it immensely difficult to pull off in a way that feels true to the both of them and also unique. A tricky balance.  
+
+In addition, I have no idea how to represent Zelda on screen. In the book Zelda does not come on the trip with Hemingway and Fitzgerald, although her presence is felt. That does not mean she cannot come on the trip with them in the adaptation. At first I thought of keeping it true to the book and keeping Zelda away from the trip. The more I have thought about it though, the more I lean towards her being with Scott. I thought of representing her through flashbacks but I am typically not a fan. Also, I like the idea of the the film moving forward linearly. The most tantalizing piece I imagine is a conversation between Hemingway and Zelda. Hemingway believed Zelda was responsible for Scott's deterioration as an artist.  Zelda was brilliant as well. She wrote her own novel in six seeks while being treated for her schizophrenia. Scott copied a portion of her journal and used for a character's monologue.  Thorny timeline issues aside, there is a fascinating conversation teeming here between Hemingway and Zelda. Hemingway saying he believes Zelda is not good for Scott and if she really loved him would run away. Zelda countering with an explanation of Scott's need for destruction. He is not meant long for this earth and if it wasn't me he would find another channel to do so. 
+
+While I am not sure of the the best way to represent Zelda, Hathaway feels like a shoe-in for the role. The artistic redemption of their 2011 co-host fiasco. Hathaway is a bit of an over-actor but that would work quite nicely with Zelda. Zelda herself was a larger-than-life personality. Someone comfortable with being the center of attention (perhaps even requiring it).  On top of it al I always though Hathaway had an airy charm, a sort of of "what this old thing" energy that fits Zelda nicely in my mind. The sort of charm of someone who has never really known hardship and is too self centered to really surmise the consequences of her actions towards those around her. Hathaway is not this but I can see her wearing this persona. Lastly, Hathaway has been dogged by rumors she is difficult to work with for most of her career. I am hoping for a bit of kindred spirits moment between 
+
+Finally, we come to Chazelle. After Whiplash and La La Land it is clear he has an affinity for Jazz and what better than a movie about the man who wrote the defining book on the period. Additionally, an original jazz score setting the backdrop of Paris in the 1920s feels like an in-the-bag oscars nomination for best original score. He has broached the subject of greatness and its costs with Whiplash before. 
+
+Chazelle has an earnest style to him as well. La La Land may have a bit of a winking tone but it is clear he is having too much fun to notice. And I think the world can do with a bit of sincerity right about now. So... who says no? 
